@@ -1,1 +1,0 @@
-# kvnyay.github.io
